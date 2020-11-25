@@ -4,6 +4,8 @@
 
 ## I'm just another human!!
 
+- I'm french !
+- I actually live in French Polynesia
 - I’m currently learning everything 🤣
 - I’m looking to collaborate with other content creators
 - 2020 Goals: Contribute more to Open Source projects
